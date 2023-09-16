@@ -10,4 +10,5 @@ Meu nome é Marcele Schluter
 
 @marcele.schluter@escola.pr.gov.br
 
-! [](https://media.tenor.com/qSumYr4kswcAAAAd/arcane-arcane-vi.gif)
+
+[](https://media.tenor.com/qSumYr4kswcAAAAd/arcane-arcane-vi.gif)
